@@ -1,4 +1,3 @@
-https://teams.microsoft.com/meet/487103301942765?p=1xoax7w0w4mmnhe8jr
+resource accessibiltiy development - https://teams.microsoft.com/meet/45158739047014?p=ptSZprGWxRMytREpuo
 
-
-https://teams.microsoft.com/meet/487103301942765?p=1xoax7w0w4mmnhe8jr
+reconcilation demo. - https://teams.microsoft.com/meet/469114065187252?p=m7mA6BmCfqEWyajqYQ
